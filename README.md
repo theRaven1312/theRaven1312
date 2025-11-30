@@ -29,6 +29,4 @@ I have a strong command of programming fundamentals and modern development tools
 
 ### Connect with Me
 
-- [LinkedIn](https://linkedin.com/in/your-linkedin-url)
-- [Email](mailto:your-email@example.com)
-- [Portfolio/Website](https://your-website.com)
+[Update later <3]
