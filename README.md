@@ -1,4 +1,4 @@
-# Hi there, I'm [Viet Hoang]! 👋
+# Hi there, I'm Viet Hoang! 👋
 
 ### About Me
 
